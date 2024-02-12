@@ -1,1 +1,1 @@
-AirBnB v3 with Ezeh Chekw
+AirBnB v3 with Nana Kwame Adjei-Antwi and Ezeh Chekwube
